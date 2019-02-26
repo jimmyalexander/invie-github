@@ -1,2 +1,2 @@
 # invie-github
-Tus mejore guitarras invie-sibles by @platzi la mejor empresa
+Tus mejore guitarras Invie-sibles by @platzi 
